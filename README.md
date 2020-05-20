@@ -1,4 +1,4 @@
-## Got a loops?
+## Got loops?
 
 I do. If you need to create infinite loop video from your footage feel free to contact me here of via twitter.
 
